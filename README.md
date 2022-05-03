@@ -24,4 +24,4 @@ Interstellar: Original Motion Picture Soundtrack es el álbum de banda sonora de
 
 ![Interstellar: Original Motion Picture Soundtrack](https://lastfm.freetls.fastly.net/i/u/ar0/c8096ea5442c495be3d395a365af0fc3.jpg)
 
-Esta es una recomendación para mi amigo: 
+Esta es una recomendación para mi amigo: @JorgMorales
